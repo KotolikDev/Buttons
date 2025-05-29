@@ -1,1 +1,1 @@
-![Интерфейс с кнопками](https://github.com/user-attachments/assets/f2c96488-9ad7-4536-8e41-be1c6e1e47e0)
+![Интерфейс с кнопками](https://github.com/user-attachments/assets/ac7ae8ba-0370-45b5-97ce-bebd8e400e33)
